@@ -1,6 +1,6 @@
 ## Bom dia 👋
 
-- 🔭 I’m currently working on nothing i'm on vacation 
+- 🔭 I’m currently working on nothing i'm lazy 
 - 🌱 I’m currently learning about videogames
 - 🤔 I’m looking for help with everything here
 - 💬 Ask me about nothing please
