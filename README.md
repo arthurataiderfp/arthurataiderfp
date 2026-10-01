@@ -1,5 +1,5 @@
 ## Bom dia 👋
-
+Ignore isto tudo, fiz isso em 2024 quando eu criei essa conta, quando eu parar pra personalizar decentemente meu github eu ponho algo mais apresentável.
 - 🔭 I’m currently working on nothing i'm lazy 
 - 🌱 I’m currently learning about videogames
 - 🤔 I’m looking for help with everything here
